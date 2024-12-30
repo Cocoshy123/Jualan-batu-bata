@@ -9,3 +9,4 @@ wkwk kacau
 BOBOboy dan probe
 kita gaskan ygy
 ngantenan bjir
+bismillah cair
