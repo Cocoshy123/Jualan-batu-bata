@@ -11,3 +11,4 @@ kita gaskan ygy
 ngantenan bjir
 bismillah cair
 ttp stY YGy
+ttp gass poll
