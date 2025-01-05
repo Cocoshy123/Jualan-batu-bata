@@ -15,3 +15,4 @@ ttp gass poll
 ttp nugas poll
 boboi
 terbiasa tuk pura2 tertawa
+yak terulang lagi
