@@ -18,3 +18,4 @@ terbiasa tuk pura2 tertawa
 yak terulang lagi
 perjalanan ini masih jauh
 gege uah
+2 weeks
