@@ -19,3 +19,4 @@ yak terulang lagi
 perjalanan ini masih jauh
 gege uah
 2 weeks
+tgl10 njir gg
