@@ -22,3 +22,4 @@ gege uah
 tgl10 njir gg
 scammer njir
 kacau sir
+beli pakan kucing dulu
