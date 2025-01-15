@@ -24,3 +24,4 @@ scammer njir
 kacau sir
 beli pakan kucing dulu
 gas terus
+beli pc
