@@ -26,3 +26,4 @@ beli pakan kucing dulu
 gas terus
 beli pc
 hari ini nigga
+alhamdulillah bersyukur
