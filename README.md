@@ -28,3 +28,4 @@ beli pc
 hari ini nigga
 alhamdulillah bersyukur
 ttp bismilah
+insyallah
