@@ -29,3 +29,4 @@ hari ini nigga
 alhamdulillah bersyukur
 ttp bismilah
 insyallah
+alhamdulillah bisa mint 1
