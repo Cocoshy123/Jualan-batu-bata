@@ -31,3 +31,4 @@ ttp bismilah
 insyallah
 alhamdulillah bisa mint 1
 new year new me
+new year new garam
