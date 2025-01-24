@@ -33,3 +33,4 @@ alhamdulillah bisa mint 1
 new year new me
 new year new garam
 penjualan hari ini bagus :D
+lebih dekat dengan doi
