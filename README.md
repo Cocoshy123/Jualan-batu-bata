@@ -35,3 +35,4 @@ new year new garam
 penjualan hari ini bagus :D
 lebih dekat dengan doi
 walawe nt nt
+gga 25m
