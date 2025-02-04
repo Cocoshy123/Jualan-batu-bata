@@ -44,3 +44,4 @@ masih semangatt
 bobo eden
 github bois
 ttp semangatt 
+jangan ges ampunnn
