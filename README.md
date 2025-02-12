@@ -50,3 +50,4 @@ gk eliggg beraaa
 gege arapp wkwk
 im back sir
 wealahh gg
+perjalanan ini
