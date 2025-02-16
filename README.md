@@ -53,3 +53,4 @@ wealahh gg
 perjalanan ini
 semangatt
 semangattt
+gas project
