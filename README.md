@@ -54,3 +54,4 @@ perjalanan ini
 semangatt
 semangattt
 gas project
+gasss
