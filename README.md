@@ -59,3 +59,4 @@ gas terus d-10
 gg
 kenapa harus 88 wkwk
 wealah gg
+santai kawan
