@@ -62,3 +62,4 @@ wealah gg
 santai kawan
 wow madagaskar le
 walaweee
+lets gooo
