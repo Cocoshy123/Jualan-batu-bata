@@ -63,3 +63,4 @@ santai kawan
 wow madagaskar le
 walaweee
 lets gooo
+kucari penggantimu
