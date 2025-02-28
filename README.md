@@ -64,3 +64,4 @@ wow madagaskar le
 walaweee
 lets gooo
 kucari penggantimu
+ragnarok letsgoo
