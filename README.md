@@ -66,3 +66,4 @@ lets gooo
 kucari penggantimu
 ragnarok letsgoo
 Lfg bisa2
+bismillah listkkkk
