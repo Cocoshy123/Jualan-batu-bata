@@ -69,3 +69,4 @@ Lfg bisa2
 bismillah listkk
 kasian said meninggoy
 bismillah
+bismillah sir
