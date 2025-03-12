@@ -76,3 +76,4 @@ gass bosku
 wiwhiwhwi
 dawouhfviouav
 dinggo wong liyo
+atiku melu teles
