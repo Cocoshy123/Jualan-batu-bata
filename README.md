@@ -82,3 +82,4 @@ wes ckup tk ujo
 malemmmm
 weudihh
 blunderrrrr
+aku waeee
