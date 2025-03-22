@@ -86,3 +86,4 @@ aku waeee
 ngantuk rill
 broooo
 haissh
+larang tenan
