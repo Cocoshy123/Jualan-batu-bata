@@ -92,4 +92,5 @@ ap itu nilion
 tyty 
 mantapss
 loro neng atimu
-nege kene lee
+nege kene leetakbira
+takbiran dirumah sadd
