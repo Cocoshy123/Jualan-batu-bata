@@ -94,3 +94,4 @@ mantapss
 loro neng atimu
 nege kene leetakbira
 takbiran dirumah sadd
+moga2 jpjp
